@@ -1,0 +1,6 @@
+kiausiniu
+raugintu agurku
+popieriniu ranksliuosciu
+bulves
+svogunu
+lydito sviesto
